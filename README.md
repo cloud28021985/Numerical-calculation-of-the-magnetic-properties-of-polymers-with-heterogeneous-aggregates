@@ -1,0 +1,1 @@
+# Numerical-calculation-of-the-magnetic-properties-of-polymers-with-heterogeneous-aggregates
